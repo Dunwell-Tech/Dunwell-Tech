@@ -1,4 +1,4 @@
-<img src="https://www.dinolite.us/wp-content/uploads/elementor/thumbs/dunwell-q40am25u91unio263qrn830492ru4wyj4oqev83fwa.png">
+<img src="https://www.dinolite.us/wp-content/uploads/dunwell-tech-2015-edit3_vectorized.png">
 
 ## Overview
 We are Dunwell Tech, Inc, operating as Dino-Lite US, providing technology services and specializing in innovative hardware and software. 
